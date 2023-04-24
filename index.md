@@ -4,4 +4,4 @@ title: Responsible gun rights
 
 # Overview
 
-overview text
+o . o . o .
