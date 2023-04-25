@@ -17,7 +17,7 @@ The opportunities to be realized:
 * Responsible proponents of gun rights can live in a state in which their rights to keep and bear Arms are bolstered and supported by the state government, even above and beyond the status quo.
 * Simultaneously, with the same mechanisms for bolstering and supporting 2nd Amendment rights, the state of Washington can address many of the problems that lead to severe rates of death and injury due to gun violence. 
 
-# The Context = The U.S. Constitution and Bill of Rights
+# The Context is The U.S. Constitution and Bill of Rights
 
 *Amendment II*
 
