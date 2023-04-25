@@ -17,16 +17,25 @@ The opportunities to be realized:
 * Responsible proponents of gun rights can live in a state in which their rights to keep and bear Arms are bolstered and supported by the state government, even above and beyond the status quo.
 * Simultaneously, with the same mechanisms for bolstering and supporting 2nd Amendment rights, the state of Washington can address many of the problems that lead to severe rates of death and injury due to gun violence. 
 
-# The Context is The U.S. Constitution and Bill of Rights
+# The Context: the U.S. Constitution and Bill of Rights
 
 *Amendment II*
 
 A well regulated Militia, being necessary to the security of a free state, the right of the people to keep and bear Arms, shall not be infringed.
 [source: U.S. National Archives](https://www.archives.gov/founding-docs/bill-of-rights-transcript)
 
+# The Heart of the Problem
+
+The issue is that there are far too many people having guns who should not, when any reasonable person can very simply identify that they should not have a gun.
+
+The problem is that our society doesn't currently have a mechanism for making and applying that simple judgment call. 
+
+The 2nd Amendment to the U.S. Constitution guides us to the answer.
+
 # The Strategy
 
-zz
+o o o 
+
 
 # A Disclaimer
 
