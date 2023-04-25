@@ -29,6 +29,7 @@ The strategy described here will have a meaningful impact, but it is not adverti
 # The U.S. Constitution and Bill of Rights
 
 Amendment II
+
 A well regulated Militia, being necessary to the security of a free state, the right of the people to keep and bear Arms, shall not be infringed.
 [source: U.S. National Archives](https://www.archives.gov/founding-docs/bill-of-rights-transcript)
 
