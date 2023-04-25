@@ -26,9 +26,9 @@ A well regulated Militia, being necessary to the security of a free state, the r
 
 # The Heart of the Problem
 
-The issue is that there are far too many people having guns who should not, when any reasonable person can very simply identify that they should not have a gun.
+The issue is that there are far too many people having guns who should not, when any reasonable person can very simply identify that those folks should not have a gun.
 
-The problem is that our society doesn't currently have a mechanism for making and applying that simple judgment call. 
+The problem is that our society doesn't currently have a mechanism for applying that simple judgment call. 
 
 The 2nd Amendment to the U.S. Constitution guides us to the answer.
 
