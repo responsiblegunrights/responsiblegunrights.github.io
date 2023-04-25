@@ -23,8 +23,7 @@ zz
 
 # A Disclaimer
 
-The strategy described here will have a meaningful impact, but it is not advertised to be the one grand and golden solution to all of the problems of gun violence. It's often the case that difficult problems require multiple solutions that approach from various angles. The angle here is probably a very effective one but also probably not the whole story.
-
+The strategy described here will have a meaningful impact, but it is not advertised to be "the one" grand and golden solution to all of the problems of gun violence. It's often the case that difficult problems require multiple solutions that approach from various angles. The angle here is probably a very effective one but also probably not the whole story. This strategy supports and bolsters other initiatives that also aim to reduce gun violence in our communities.
 
 # The U.S. Constitution and Bill of Rights
 
