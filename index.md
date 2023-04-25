@@ -10,7 +10,7 @@ The violent use of guns causes severe rates of death and injury to children and 
 
 At the same time, the state of Washington must protect and promote the rights described by the 2nd Amendment to the U.S. Constitution. Citizens of the state of Washington reasonably expect that the 2nd Amendment to the U.S. Constitution provides them with a right to keep and bear Arms in the context of a well regulated Militia. The state of Washington must protect and promote that right.
 
-# The Opportunity
+# The Opportunities
 
 The opportunities to be realized:
 
