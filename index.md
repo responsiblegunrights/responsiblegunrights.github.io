@@ -6,7 +6,7 @@ title: Responsible gun rights
 
 The state of Washington faces an intersection of public interests. 
 
-The violent use of guns causes severe rates of death and injury to children and adults in our communities. This gun violence kills or injures citizens of our communities almost every day. The magnitude and frequency of the gun violence threatens the security of our State and violates the security of its people.
+The violent use of guns causes severe rates of death and injury to children and adults in our communities. This gun violence kills or injures citizens in our communities almost every day. The magnitude and frequency of the gun violence threatens the security of our State and violates the security of its people.
 
 At the same time, the state of Washington must protect and promote the rights described by the 2nd Amendment to the U.S. Constitution. Citizens of the state of Washington reasonably expect that the 2nd Amendment to the U.S. Constitution provides them with a right to keep and bear Arms in the context of a well regulated Militia. The state of Washington must protect and promote that right.
 
