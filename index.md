@@ -26,11 +26,13 @@ A well regulated Militia, being necessary to the security of a free state, the r
 
 # The Heart of the Problem
 
-The issue is that there are far too many people having guns who should not, when any reasonable person can very simply identify that those folks should not have a gun.
+The issue is that there are far too many people bearing Arms who should not, when any reasonable person can very simply identify that those folks should not be bearing Arms.
 
-The problem is that our society doesn't currently have a mechanism for applying that simple judgment call. 
+The problem is that our society doesn't currently have a mechanism for applying this simple judgment call, that almost all citizens are capable of making.
 
-The 2nd Amendment to the U.S. Constitution guides us to the answer.
+The result is that our system of laws and institutions actively hinders and prevents the ability of our citizens to realize a secure and free state of well regulated people keeping and bearing arms. Instead we have unregulated people keeping and bearing arms. 
+
+Fortunately, the 2nd Amendment to the U.S. Constitution guides us to the answer.
 
 # The Strategy
 
